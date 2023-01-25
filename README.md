@@ -1,1 +1,1 @@
-# Mathai-Grit-George
+# Mathai-George
